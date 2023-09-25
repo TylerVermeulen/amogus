@@ -1,0 +1,2 @@
+# amogus
+school p[roject
